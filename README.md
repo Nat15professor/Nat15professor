@@ -6,8 +6,8 @@
 - Sou cosplayer a 8 anos 
 - Dou aula na escola Pei a 3 meses 
 - ###Você pode entrar em contato comigo pelo email:natashaassis@prof.educacaçao.sp.gov.br###
-- 
-- ![](https://media1.tenor.com/m/HoyV9O0Grc4AAAAC/dan-heng-honkai-star-rail.gif)
+  
+ ![](https://media1.tenor.com/m/HoyV9O0Grc4AAAAC/dan-heng-honkai-star-rail.gif)
 
 
 --->
